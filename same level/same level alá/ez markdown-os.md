@@ -1,1 +1,1 @@
-továbbra is shit
+továbbra is shit ajjaj 
